@@ -1,1 +1,1 @@
-https://hhdf0050-ctrl.github.io/Singing.github.io/
+https://hhdf0050-ctrl.github.io/Singing
